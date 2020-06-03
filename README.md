@@ -1,2 +1,2 @@
 20203091 shinyousong
-Kookmin Univ, SW
+Kookmin University, SW
